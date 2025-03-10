@@ -1,0 +1,1 @@
+# Automa-o-de-Processamento-deArquivos_AMEX_Centurion_-Bradesco-
